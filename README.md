@@ -14,7 +14,7 @@ Craig Bonnyman is an investor in digital media businesses and currently serves a
 
 ## Current Projects
 
-### Mediabridge (mediabridge.ai)
+### Mediabridge (mediabridge.net)
 Mediabridge identifies, acquires, and grows digital publications and e-commerce websites with untapped potential. Under Craig Bonnyman's direction, the company implements structured content optimisation programs that significantly increase the value of the asset and performance metrics.
 
 ## Areas of Expertise
@@ -40,11 +40,11 @@ Mediabridge identifies, acquires, and grows digital publications and e-commerce 
 - [LinkedIn](https://www.linkedin.com/in/craig-bonnyman/)
 - [Twitter](https://x.com/CraigBonnyman)
 - [Medium](https://medium.com/@craigbonnyman)
-- [Mediabridge](https://www.mediabridge.ai/about)
+- [Mediabridge](https://www.mediabridge.net/about)
 
 ## Collaboration
 
-Interested in discussing digital media investments, SEO strategy, or potential collaborations? Feel free to reach out via [LinkedIn](https://www.linkedin.com/in/craig-bonnyman/) or email at contact@mediabridge.ai.
+Interested in discussing digital media investments, SEO strategy, or potential collaborations? Feel free to reach out via [LinkedIn](https://www.linkedin.com/in/craig-bonnyman/) or email at contact@mediabridge.net.
 
 ---
 
